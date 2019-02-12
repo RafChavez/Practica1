@@ -1,4 +1,4 @@
-quiubo lobo como estas? 
-sigo modificandolo
+7  - 15
+15 - 23
+23 - 7
 
-ahora desde mi equipo
